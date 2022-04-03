@@ -2,4 +2,4 @@
 - 👀 I’m interested in website development
 - 🌱 I’m currently learning in MUIDS
 - 💞️ I’m looking to collaborate on any website related work
-- 📫 Feel free to contact me via phichayut.somj@gmail.com
+- 📫 Feel free to contact me via phichayut.somjai01@gmail.com
